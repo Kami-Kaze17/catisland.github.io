@@ -7,5 +7,5 @@
 
 
 
-[Link](discord.gg/catisland) 
+[CLICK HERE FOR FREE CATS](discord.gg/catisland) 
 

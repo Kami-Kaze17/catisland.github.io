@@ -7,5 +7,5 @@
 
 
 
-[CLICK HERE FOR FREE CATS]("https://discord.com/invite/catisland")
+[CLICK HERE FOR FREE CATS](https://discord.com/invite/catisland)
 
